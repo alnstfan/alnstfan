@@ -2,9 +2,9 @@
 
 
     - About: 15,                                             . + 
-                 straight (women ❤)
-                                    polyamourus    
-    + .                                         Bipolar Disorder
+                straight (women ❤)
+                                   polyamourus    
+    + .                                       bipolar disorder
 
     
 ![sparkle-star](https://github.com/user-attachments/assets/82fe9581-429b-4924-b01f-7218c24e03e1) ![hyuna-alien-stage](https://github.com/user-attachments/assets/20b9b871-64d7-4d07-8d0e-ddca4eadec08)
