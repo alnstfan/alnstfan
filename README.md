@@ -14,9 +14,9 @@
 ![317251461-2fc9fb83-2755-417b-8e32-396ebeb60668](https://github.com/user-attachments/assets/ee700e0b-66da-43c6-916e-a96e6eb472af)
 
 
-__________________________________________________________________________________________________________
+___________________________________________________________________________________________________________________
 
-                        ‼ CREDITS TO PEOPLE WHO MADE GIFS & IMAGES ‼
+                                   ‼ CREDITS TO PEOPLE WHO MADE GIFS & IMAGES ‼
 <!---
 alnstfan/alnstfan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
