@@ -16,7 +16,7 @@
 
 __________________________________________________________________________________________________________
 
-                          ‼ CREDITS TO PEOPLE WHO MADE GIFS & IMAGES ‼
+                        ‼ CREDITS TO PEOPLE WHO MADE GIFS & IMAGES ‼
 <!---
 alnstfan/alnstfan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
