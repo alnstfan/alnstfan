@@ -2,13 +2,14 @@
 
 
 
-![sparkles-sparkle](https://github.com/user-attachments/assets/efd906e2-8f97-4118-b371-82dac90cc7a4)  ![mizisua-alnst](https://github.com/user-attachments/assets/115375eb-857b-4cdf-96a0-2cae8886540d) ![sparkles-sparkle](https://github.com/user-attachments/assets/efd906e2-8f97-4118-b371-82dac90cc7a4)
+![stars-changing-colors](https://github.com/user-attachments/assets/707ec2b4-6db0-46ef-b254-c182ca2ec93a) ![mizisua-alnst](https://github.com/user-attachments/assets/115375eb-857b-4cdf-96a0-2cae8886540d) ![stars-changing-colors](https://github.com/user-attachments/assets/707ec2b4-6db0-46ef-b254-c182ca2ec93a)
+
 
                + '        𝔄𝔚𝔄𝔜 𝔒𝔑 𝔖𝔘𝔐𝔐𝔈ℜ ℌ𝔒𝔏ℑ𝔇𝔄𝔜 (𝔠𝔥𝔢𝔠𝔨 𝔰𝔦𝔡𝔢 𝔭𝔯𝔬𝔣𝔦𝔩𝔢)          ' + 
                   𝔄𝔅𝔒𝔘𝔗: 15, 𝔖𝔱𝔯𝔞𝔦𝔤𝔥𝔱, 𝔓𝔬𝔩𝔶𝔞𝔪𝔬𝔲𝔯𝔲𝔰, 𝔗𝔯𝔞𝔫𝔰𝔤𝔢𝔫𝔡𝔢𝔯, 𝔅𝔦𝔭𝔬𝔩𝔞𝔯 𝔇𝔦𝔰𝔬𝔯𝔡𝔢𝔯
                 + .                   𝔄𝔪 ℑ 𝔠𝔬𝔬𝔩 𝔬𝔯 𝔫𝔬𝔱 𝔠𝔬𝔬𝔩?                    . +
 
-![sparkles-sparkle](https://github.com/user-attachments/assets/efd906e2-8f97-4118-b371-82dac90cc7a4) ![good-night-sweet-dreams](https://github.com/user-attachments/assets/44e9aada-b1a4-4d01-923a-cec1391eb808) ![sparkles-sparkle](https://github.com/user-attachments/assets/efd906e2-8f97-4118-b371-82dac90cc7a4) 
+![stars-changing-colors](https://github.com/user-attachments/assets/707ec2b4-6db0-46ef-b254-c182ca2ec93a) ![good-night-sweet-dreams](https://github.com/user-attachments/assets/44e9aada-b1a4-4d01-923a-cec1391eb808) ![stars-changing-colors](https://github.com/user-attachments/assets/707ec2b4-6db0-46ef-b254-c182ca2ec93a) 
 
 
 
